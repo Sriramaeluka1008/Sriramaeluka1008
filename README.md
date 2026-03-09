@@ -11,7 +11,7 @@ a rewarding career journey. <br>- 👯  I’ve successfully completed training i
 
 
 ## 🌐 Socials:
-<a href="https://www.linkedin.com/in/Sriram Aeluka/"><img align="left" alt="akd's Linkdein" width="100px" src="https://img.shields.io/badge/Linkedin-0A66C2?style=for-the-badge&logo=Linkedin&logoColor=white"/></a>
+<a href="https://www.linkedin.com/in/sriram-aeluka-37a062294?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app"><img align="left" alt="akd's Linkdein" width="100px" src="https://img.shields.io/badge/Linkedin-0A66C2?style=for-the-badge&logo=Linkedin&logoColor=white"/></a>
 </a>
 <br><br>
 
