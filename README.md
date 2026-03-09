@@ -28,7 +28,3 @@ a rewarding career journey. <br>- 👯  I’ve successfully completed training i
 
 
 
-
-## Hi there 👋
-
-
